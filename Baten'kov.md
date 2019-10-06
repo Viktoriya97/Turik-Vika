@@ -36,4 +36,5 @@
 
 [Феномен Батенькова и проблема мистификации] (http://www.rvb.ru/philologica/04/04shapir.htm#note9), 
 (https://rvb.ru/philologica/05/05shapir.htm)
+[Семантическая эволюция архаизмов и историзмов] (https://cyberleninka.ru/article/v/semanticheskaya-evolyutsiya-arhaizmov-i-istorizmov)
 
